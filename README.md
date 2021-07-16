@@ -1,7 +1,4 @@
-#Acc Fake MrTiger 
+#Acc Fake Voice Redzone
 
-Best Staff | Good Family
-
-
-
-![logo](https://cdn.discordapp.com/avatars/712407561676259418/58d18c40dbfede663c6962146f6e46dd.png?size=1024)
+JOKER,STAFF IS ONE
+![logo]https://images-ext-1.discordapp.net/external/y9TUU-ODQT4iD7c1jmD5dx-31HC6nQzdZlsYmNuwGqo/%3Fsize%3D2048/https/cdn.discordapp.com/banners/550784319971393566/184f496742b12dbc2fca2c2fcc188e77.webp
